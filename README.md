@@ -1,0 +1,6 @@
+![1](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/9a5d81a7-698c-45cb-a133-2bb8b6b52e01)
+![2](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/787cbd29-fa4b-49c6-a5a0-1fa0e8058325)
+![3](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/609c164e-3eab-4cbd-ac0b-6ac62e915a25)
+![4](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/3d30e95e-6361-4ed3-a760-50210feb1758)
+![5](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/d2371aae-c15f-4987-a6cf-d9f9691407c8)
+![6](https://github.com/KaviniPramudika/Movie_Ticket_Booking_System/assets/149506745/0e11a962-675e-4305-945a-132994007b57)
